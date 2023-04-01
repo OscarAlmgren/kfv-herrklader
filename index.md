@@ -17,7 +17,7 @@ Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp 
 * Tandvård - Likt kroppsdoft är mun- och tandvård något du förväntas hålla koll på. Dålig andedräkt och fläckiga tänder hör inte hemma i KFV. Vårda din gom och tandkött!
 * Hudvård - Ta hand om ev utslag och sår.
 
-**Kort sagt; hel och ren**.
+Kort sagt; **hel** och **ren**.
 
 ## Lager 1 - Närmast kroppen
 
@@ -32,6 +32,8 @@ Kommentarer överflödiga då du förväntas veta hur man bär underkläder. NB:
 Strumpor däremot, här finns det förtydliganden att göra på vad som är rätt modell.
 
 Till fracken skall knästrumpor bäras. Det är den rätta längden för att undvika "The White Stripe". Här är det värt att göra ett inköp på 1x (eller flera) par svarta knästrumpor att bära varje gång du bär frack, smoking eller kostym där det absolut kommer vara en blemma på din outfit att vit-strippan visar sig. När budget och känslan faller på kan man även utöka till andra färger, likt mörkt marinblå, mörkgrå eller annat. Men till fracken är det svart eller i nödfall mörkblå strumpor som gäller.
+
+![Svarta knästrumpor](bilder/Myrqvist_svarta_knästrumpor.webp "Svarta knästrumpor")
 
 Exempel: [Myrqvist svarta knästrumpor](https://myrqvist.com/products/gustav-black)
 
@@ -73,7 +75,8 @@ Grunden för skodon i alla formella sammanhang oavsett klädkod är
 : ”låga” rensar bort kängor eller andra skor med högre skaft
 : ”snörskor” anger slutligen att kardborrband eller kanske mer vanligt förekommande resår ska undvikas.
 
-[ rätt och fel skor]
+Mest klassisk är sk oxfordmodell med sluten snörning. Även öppen snörning torde dock vara gångbar idag. Tåsöm eller ej är en smaksak. Om sulan är av läder eller försedd med gummi är också valfritt eftersom ingen förväntas syna din sula närmare.
+![Svarta, släta, låga snörskor](bilder/Myrqvist_svarta_lågskor.webp "Svarta, släta, låga snörskor")
 
 Skon ska vara välvårdad vilket betyder ren från smuts och putsad med skokräm till någon form av glans.
 Att putsa sin sko kan antingen göras grundligt och genomarbetat, likt följande video från Davidssons skomakeri. Om din skovårdslåda innehåller dessa verktyg är denna process att rekommendera när man har gott om tid att genomföra den.
@@ -85,12 +88,18 @@ Vid de tillfällen en snabbare men inte lika genomgående vårdprocess önskas k
 Lackskor är en sko som har fått ytan behandlad med plast eller någon form av olja som gör att den har en permanent glans. Lackskor är ett utpräglat festplagg som *inte ska bäras* till begravning, examenshögtider eller andra mer formella sammankomster med frack, dvs KFVs högtidsmiddagar.
 En del ordenssällskap förbjuder tex användandet av lackskor vid sina sammankomster, men vilket KFV inte har förbud mot.
 Förr bar ofta artister och medlemmar i bandet lackskor (ex.vis Fred Astaire och Matt Monroe) samt sk swingpjattar. Vill man inte sälla sig till den skaran så är en välputsad sko av vanligt läder att föredra.
+![Svarta lackskor](bilder/Myrqvist_lackskor.webp "Svarta lackskor")
 
 *Undantaget* är vid de tillfällen då KFV har utpräglad feststämning; t.ex. vartannat år med KFVs bal där kvinnliga gäster förekommer och den årligen återkommande KFV Stockholms-fänikans Lågtidsmiddag (klädsel: smoking).
 
-Mest klassisk är sk oxfordmodell med sluten snörning. Även öppen snörning torde dock vara gångbar idag. Tåsöm eller ej är en smaksak. Om sulan är av läder eller försedd med gummi är också valfritt eftersom ingen förväntas syna din sula närmare.
+*Undantaget 2* är s.k. bowtie-skor kombinerat med knickers. Detta är en ny variant av frackklädsel som guiden återkommer till efter grundliga efterforskningar.
 
 Vid svårt väderläge (regn eller snö) bärs [galoscher, bottiner eller pampuscher](https://vintagemannen.se/2016/02/09/bli-inte-blot-om-fotterna-idag/) (pampuscher för damer). Skulle vädret vara mycket kallt så går det bra att bära rejälare kängor eller stövlar under transport som bytes mot skor vid ankomst till lokalen. Tumregeln är att om man kan bära päls som ytterplagg så kan man bära vinterstövlar.
+
+Här följer några exempel på, som mot bakgrund av ovan nämnda indelningar, alltså skall anses, till frack och KFVs herrsällskapsmässiga högtidsmiddagar, vara **ej rätt skor**.
+![Svarta kvartsbrogue](bilder/Myrqvist_kvarts_brogue_svarta.webp "Svarta kvartsbrogue")
+![Svarta lackskor](bilder/Myrqvist_lackskor.webp "Svarta lackskor")
+![Svarta, släta, höga skor](bilder/ElfvikBlackCalf_02.webp "Svarta, släta, höga skor")
 
 ### Skjortan
 
@@ -107,6 +116,8 @@ Dessa bör i KFVs strävan efter att vara det lilla extra från en svunnen tid, 
 ### Kragen
 
 Som tidigare nämnt är det vingkrage som gäller. Skjortmodeller finns med löstagarbara kragar och då har man några betänkanden att ta höjd för.
+
+![Collarless wing shirt](bilder/collarless-wing-shirt1.webp "Collarless wing shirt")
 
 * Den lösa kragen bör vara en halv storlek större än skjortans kragmått. Bär du skjortkrage 16 tum bör alltså den löstagbara kragen vara 16½ tum.
 * När man nyttjar lös krage så används två lösa knappar, nästan likt en minimanschett, se bild. En i nacken, en framtill under adamsäpplet. Betänk att den främre av dessa knappar måste ta längd för att kunna ha fyra lager av kragtyget (om lott!) när den skall fästas. Om kragtyget är 2 mm tjockt är det alltså 4x2 = 8 mm längd på frontknappens stjälk för att med lämplig enkelhet kunna knäppa kragen. [Bild på krag1] [Bild på krag2]
