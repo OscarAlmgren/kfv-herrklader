@@ -71,10 +71,14 @@ Här några ord skrivna av KKFV Br Marcus Molander:
 
 Grunden för skodon i alla formella sammanhang oavsett klädkod är
 
-”Svarta, släta, låga snörskor”.
+”Svarta, släta, låga snörskor”. Där..
+
 : ”Svarta” anger naturligtvis färgen vilken gäller för hela skons ovansida inklusive skoband (skosnöre)
+
 : ”släta” betyder att sk brouge-modell med perforerad yta eller andra krussiduller på ovanlädret undanbedes
+
 : ”låga” rensar bort kängor eller andra skor med högre skaft
+
 : ”snörskor” anger slutligen att kardborrband eller kanske mer vanligt förekommande resår ska undvikas.
 
 Mest klassisk är sk oxfordmodell med sluten snörning. Även öppen snörning torde dock vara gångbar idag. Tåsöm eller ej är en smaksak. Om sulan är av läder eller försedd med gummi är också valfritt eftersom ingen förväntas syna din sula närmare.
