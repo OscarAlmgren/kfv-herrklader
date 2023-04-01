@@ -1,8 +1,10 @@
 # KFV Herrkläder
 
-Denna klädguide riktar sig till KFV bröder, speciellt yngre bröder som inte hunnit läsa flertalet böcker eller texter om hur en gentleman bör klä sig, röra och föra sig. Den får även till viss del utgöra en påminnelse och checklista för de äldre bröder som redan vet allt.
+Denna klädguide riktar sig till KFV bröder, speciellt yngre bröder som inte hunnit läsa flertalet böcker eller texter om hur en gentleman bör klä sig, röra och föra sig. Den får även till viss del utgöra en påminnelse och checklista för de äldre bröder som redan vet allt. Läs dessa inledningsord, läs sedan avslutningsorden, därefter varje sektion i den mån du som broder behöver fräscha på din kunskap.
 
-Men, några ord om GROOMING STANDARD först.
+Men, först några ord om ***GROOMING STANDARD***.
+
+## Lager 0 - Din lekamen
 
 Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp och yttre som förväntas alltjämt efterlevas i våra sammanhang. Dessa kategorier är:
 
@@ -10,32 +12,47 @@ Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp 
 * Kroppsdoft - Gör din grej och dina Eau de Cologne, du förväntas vara fri från icke angenämna odörer när du ansluter.
 * Hårvård - I KFV förväntas du vara vårdad vid högtidstillfällen. Det betyder att du har en riktig människofrisyr, ev hårprodukter, och att du har trimmat skägget alt rakat dig ordentligt. Inga hobos eller luffare!
 * Klädsel - Täcks av denna klädguide.
-* Tandvård - Likt kroppsdoft är mun- och tandvård något du förväntas hålla koll på. Dålig andedräkt och fläckiga tänder hör inte hemma i KFV. Vårda din gom!
+* Tandvård - Likt kroppsdoft är mun- och tandvård något du förväntas hålla koll på. Dålig andedräkt och fläckiga tänder hör inte hemma i KFV. Vårda din gom och tandkött!
 * Hudvård - Ta hand om ev utslag och sår.
 
-## Närmast kroppen, lager 1
+## Lager 1 - Närmast kroppen
 
-De kläder som är dig närmast kroppen är delvis basen i den perfekta fracken. Underkläder, strumpor, undertröja.
+De kläder som är dig närmast kroppen är delvis basen i den perfekta fracken. Underkläder, strumpor, undertröja. En kommentar gällande naken eller exponerad hud; för män är det eftersträvansvärt att naken hud bara förekommer ovan kraglinjen samt nedan manschettkanten. Övriga huddelar skall vara täckta.
 
-### Underkläder
+### Underkläder och kalsonger
 
-Kommentarer överflödiga då du förväntas veta hur man bär underkläder. NB: Aldrig, någonsin, att man går "Commando" i fracksammanhang i KFV.
+Kommentarer överflödiga då du förväntas veta hur man bär underkläder. NB: Aldrig, någonsin, att man går *"Commando"* i fracksammanhang i KFV.
 
-### Strumpor
+### Strumpor och dess längd
 
 Strumpor däremot, här finns det förtydliganden att göra på vad som är RÄTT.
 
+Till fracken skall knästrumpor bäras. Det är den rätta längden för att undvika "The White Stripe". Här är det värt att göra ett inköp på 1x par svarta knästrumpor att bära varje gång du bör frack, smoking eller kostym där det absolut kommer vara en blemma på din outfit att vit-stripan visar sig. När budget och känslan faller på kan man även utöka till andra färger, likt mörkt marinblå eller annat. Men till fracken är det svart eller i nödfall mörkblå strumpor som gäller.
+
+De tre längder som visas på bilden nedan illustrerar nedan vaden, halva vaden och ovan vaden (knästrumpa). Knästrumpor är de som garanterat sitter kvar tillräckligt högt uppe efter att du börjat röra dig (gå, stå och sitta om vartannat), medan halva vaden med lite tur kan sitta kvar (eller med manliga varianten av strumpebandshållare). Den modell nedan vaden kommer garanterat ge uophov till vita stripan när du sitter ned, särskilt vid bekväma situationer. Guiden återkommer till strumpor igen för särskilda varianter vid klädsel smoking och senare kavaj.
+
+[Se bild på olika längdmodeller]
+
+Ett bildexempel på Br D som vid ett KFV-sammanhang (lågtidsmiddag med klädkod smoking) råkade välja en något för kort strumpa. Se bilderna sida vid sida och se hur helhetsintrycket är så mycket bättre när strumpan täcker som den ska.
+
+[ Sida vid sida Dumpanski ]
+
 ### Undertröja
 
-Rekommenderas starkt
+Att ha en undertröja hjälper vid de tillfällen då det synnerligen stärkta skjortbröstet viker sig så att skjortan öppnar sig mellan knapparna (du sitter ner i en alltför bekväm ställning). Det är ej önskvärt att se en broders nakna mage eller bringa när skjortan öppnar sig, speciellt när vi sitter till bords.
 
-## Lager 2 - det som faktiskt klär dig till frack
+Modeller: välj en mycket tunn t-shirt eller ärmlös undertröja. Tänk på att tyget bör vara vitt eller ljust grått. Ljusgrått syns mindre igenom vitt skjorttyg.
+
+Fördel: håller dig varm vid kallare väderlekar.
+Nackdel: kan göra dig svettig vid varmare väderlekar och för många lager på lager.
+
+## Lager 2 - Det som faktiskt klär dig till frack
 
 ### Skodon till frack
 
-Det finns skor till frack, och så finns det rätt skor till frack. Det finns även skor som en mindre beläst man kan välja att ha till frack, men som absolut skall undvikas av en broder i KFV.
+Det finns skor till frack, och så finns det **rätt skor** till frack. Det finns även skor som en mindre beläst man kan välja att ha till frack, men som absolut skall undvikas av en broder i KFV när frack bäres.
 
-#### Skrivet av KKFV Br Marcus Molander
+Här några ord skrivna av KKFV Br Marcus Molander:
 
 Grunden för skodon i alla formella sammanhang oavsett klädkod är
 
@@ -44,6 +61,8 @@ Grunden för skodon i alla formella sammanhang oavsett klädkod är
 : ”släta” betyder att sk brouge-modell med perforerad yta eller andra krussiduller på ovanlädret undanbedes
 : ”låga” rensar bort kängor eller andra skor med högre skaft
 : ”snörskor” anger slutligen att kardborrband eller kanske mer vanligt förekommande resår ska undvikas.
+
+[ rätt och fel skor]
 
 Skon ska vara välvårdad vilket betyder ren från smuts och putsad med skokräm till någon form av glans.
 Att putsa sin sko kan antingen göras grundligt och genomarbetat, likt följande video från Davidssons skomakeri. Om din skovårdslåda innehåller dessa verktyg är denna process att rekommendera när man har gott om tid att genomföra den.
@@ -54,15 +73,13 @@ Vid de tillfällen en snabbare men inte lika genomgående vårdprocess önskas k
 
 Lackskor är en sko som har fått ytan behandlad med plast eller någon form av olja som gör att den har en permanent glans. Lackskor är ett utpräglat festplagg som *inte ska bäras* till begravning, examenshögtider eller andra mer formella sammankomster med frack, dvs KFVs högtidsmiddagar.
 En del ordenssällskap förbjuder tex användandet av lackskor vid sina sammankomster.
-Förr bar ofta artister och medlemmar i bandet lackskor (typ Fred Astaire och Matt Monroe) samt sk swingpjattar. Vill man inte sälla sig till den skaran så är en välputsad sko av vanligt läder att föredra.
+Förr bar ofta artister och medlemmar i bandet lackskor (ex.vis Fred Astaire och Matt Monroe) samt sk swingpjattar. Vill man inte sälla sig till den skaran så är en välputsad sko av vanligt läder att föredra.
 
-*Undantaget* är vid de tillfällen då KFV har utpräglad feststämning; vartannat år KFVs bal med kvinnliga gäster och den årligen återkommande KFV Stockholms-fänikans Lågtidsmiddag (klädsel: smoking).
+*Undantaget* är vid de tillfällen då KFV har utpräglad feststämning; t.ex. vartannat år med KFVs bal där kvinnliga gäster förekommer och den årligen återkommande KFV Stockholms-fänikans Lågtidsmiddag (klädsel: smoking).
 
 Mest klassisk är sk oxfordmodell med sluten snörning. Även öppen snörning torde dock vara gångbar idag. Tåsöm eller ej är en smaksak. Om sulan är av läder eller försedd med gummi är också valfritt eftersom ingen förväntas syna din sula närmare.
 
 Vid svårt väderläge (regn eller snö) bärs [galoscher, bottiner eller pampuscher](https://vintagemannen.se/2016/02/09/bli-inte-blot-om-fotterna-idag/) (pampuscher för damer). Skulle vädret vara mycket kallt så går det bra att bära rejälare kängor eller stövlar under transport som bytes mot skor vid ankomst till lokalen. Tumregeln är att om man kan bära päls som ytterplagg så kan man bära vinterstövlar.
-
-Exempel på skor, rätt skor och helt fel skor.
 
 ### Skjortan
 
@@ -87,6 +104,8 @@ Exempel online: <https://www.newandlingwood.com/mens-accessories/stiff-collars/r
 
 ### Flugan
 
+[Bild på fluga]
+
 I KFV uppmuntras det till att nyttja egenknuten fluga, eller som det kallades förr; vit rosett. Detta för att det är mer värdigt och karaktärsvisande än de färdigknutna flugorna. Omvänt; om det fanns färdigknytna slipsar, skulle vi i KFV uppmuntra egenknuten eller färdigknutna sådana?
 
 Hur man knyter sin egen fluga finns det flertalet videos på Youtube som visar men den enkla realiteten och insikten bör göra så att envar broder hädanefter kan bemästra den med förbundna ögon;
@@ -95,7 +114,11 @@ Hur man knyter sin egen fluga finns det flertalet videos på Youtube som visar m
 
 ### Byxorna
 
-Modellen är frackbyxor, standardmodell med en revär längs benet. När du bär byxorna är det viktiga att dessa inte hasar ner på höfterna likt hur t.ex. jeans kan sitta på kroppen. Byxorna skall sitta så pass högt upp att en "white stripe" från skjortan ej uppstår mellan byxlinningen och västens nedre kan. Se bild Almgren på bal
+Modellen är frackbyxor, standardmodell med revär längs benet. När du bär byxorna är det viktiga att dessa inte hasar ner på höfterna likt hur t.ex. jeans kan sitta på kroppen. Byxorna skall sitta så pass högt upp att en "white stripe" från skjortan ej uppstår mellan byxlinningen och västens nedre kan.
+
+Notera exempel på Br Almgren, innan han insåg sina egna klädsynder, och hade sina byxor för kort ner på höfterna. Det som räddar intrycket är ju att det är vitt på vitt, men det grämer Br Almgren att en sådan Hollywood-klass på bild inte uppnår perfektion när man vet vad man ska titta efter.
+
+[Bild-Almgren-Ida-Bröllop.]
 
 #### Hängslen eller förhöjning?
 
@@ -106,15 +129,43 @@ Hur håller man byxorna uppe på rätt sätt?
 
 ### Västen
 
-Några ord om västen
+KFVs högtidsmiddagar innebär herrsällskap, således svart väst.
+KFVs bal med gäster, kvinnliga såväl som manliga sådana, innebär vit väst.
+
+Västen skall, som skrivet tidigare gällande byxornas höjd, vara så pass att de täcker byxlinningens kant.
+
+Utöver det skall västen gå så långt ner att hamnar i två kategorier beroende på åsikt och preferens.
+
+Alt 1. Västen går 1-1,5 cm nedanför frackjackans nedre del.
+Alt 2. Västen slutar i exakt samma höjd eller 0,5-1 cm innan frackjackans nedre del. Detta ger en "svart sammanhängande linje från axel till ankel".
+
+[Bild 1, 2 väst]
+
+Det finns i dagsläget anhängare av båda alternativen i KFV, därav får regeln vara tvåsvarig tills vidare. Dock är rekommendationen att välja alt 2 i valet och kvalet för både svart och vit väst.
+
+Gällande framsidan så finns två kända skärningar; V och U. Notera att vid KFVs högtidstillfällen är båda modellerna uppmuntrade och acceptabla att bära till fracken.
+
+V-skärning. Den vanligaste standardmodellen på frackväst. Kan ha kortare eller längre snibbar nedtill. [Se bild]
+
+U-skärning. Vanligt förekommande bland Försvarsmakten och Polismyndigheten då denna modell är satt till deras klädkod för högtidsdräkt. [Se bild]
+
+Gällande baksidan så finns även där två modeller; öppen rygg och sluten rygg.
+
+Öppen rygg: vanligt förekommande i "ditt första frack-kit". Är vanligtvis mera budgetvänlig och är delvis en fråga om lättare att samma modell skall passa många kroppstyper. Modellen har ett justerbart band om nacken, höften och ryggen. Att den inte gör bäraren lika varm och ev svettig är en annan egenskap. Dock är det svårt att få modellen att sitta snyggt vid axlarna, ty tyget slutar nära nyckelbenen och kan ge ett konstigt intryck. [Se bild Almgren riddare]
+
+Sluten rygg: vanligare när man genom livet uppgraderar sin frack förbi budgetstadiet. Är oftast storleksanpassad (likt byx- och kavajstorlekar), samt något mera premium i tyget. Ger snyggare helhetsintryck och erbjuder en möjlighet till vissa modifikationer efter bärarens tycke och smak; nya knappar alt nytt ryggtyg.
 
 ### Halskors - specifikt hur det skall sitta runt halsen
 
-#### Kommentarer från Jonas Arnell-Szurkos, ansvarig för Kungliga Majestäts Orden och involverad i återinförandet av det offentliga belöningssystemet. Även känd som [Ordens-Jonar](http://arnell.cc/)
+Ledamotsbandet och Riddartecknet anges att bäras enligt Sällskapets lilla Blå bok. Minnesregel för ledamöter: "Moln över Havet" - det vita ovan det blå i ledamotsbandet samt max tre band över bröstet. Det band du anser viktigast överst och därefter i fallande ordning.
 
-Halskors skall bäras direkt under flugan, vit rosett, så att bandöglan är så pass nära flugans mittband som möjligt utan att strypa bäraren.
+Vidare gäller för halskors:
 
-För de bröder som avlagt prästvigning och därmed har möjlighet att bära prästdräkt gäller att; halskorsbandet skall vara så långt att hörnorna på prästkragens "vita elva" ej täcker halskorsets band. Bildexempel JA/NEJ.
+*Kommentarer från Jonas Arnell-Szurkos, ansvarig för Kungliga Majestäts Orden och involverad i återinförandet av det offentliga belöningssystemet. Även känd som [Ordens-Jonar](http://arnell.cc/)*
+
+Halskors skall bäras direkt under flugan, vit rosett, så att bandöglan är så pass nära flugans mittband som möjligt utan att strypa bäraren. [Bild på detta]
+
+För de bröder som avlagt prästvigning och därmed har möjlighet att bära prästdräkt gäller att; halskorsbandet skall vara så långt att hörnorna på prästkragens "vita elva" ej täcker halskorsets band. [Bildexempel JA/NEJ].
 
 Gällande fästning bakom nacken; här gäller att med de medel tillgängliga göra bandet så pass "snyggt och ordnat" som om det vore ett helt band hängt runt din hals. Det är lite mer utmaning att säga entydigt vad som är rätt och vad som är fel, men här några exempel från enkelt till ambitöst.
 
@@ -127,13 +178,11 @@ Mer om bärandeordning, fästen och instruktioner finns att tillgå enligt:
 1. Sällskapets lilla Blå, som innehåller instruktioner av bärandeordning för tecken och medajler just KFV.
 2. Officiell bärandeordning från Kungahuset, delvis författat av Jonas Arnell. Se webbsida [Anvising bärande](https://kungligmajestatsorden.se/om-kmo/anvisning-barande) och [kompletterande PDF sid 9](https://kungligmajestatsorden.se/download/18.516d7c47186a1c5d5561f6d5/1678148383250/Att_bara_ordnar_och_utmarkelsetecken_2019.pdf)
 
-### Kavajen
+### Kavajen och broderade kragar
 
-#### Frackslagen - broderade kragar för doktorand och professor
+Frackjackan, kavajen, är tämligen standard. Det går att köpa upp sig över tid till mer premium men skillnaderna är svåra att se. Det man kan variera är kragen och dess kvalitet, och därmed några ord om broderade kragar från HBD Bandstein:
 
-Här följer några ord från HBD Bandstein:
-
-*Broderade kragar har en lång historia inom det militära och symboliserar tillhörighet, rang och status. Ju större, mer intrikat brodyr och påkostad krage, desto större värdighet på bäraren. Ett gott exempel är Karl XIV Johans franska marskalksuniform broderad med guldtråd som täcker större delen av kragen.
+Broderade kragar har en lång historia inom det militära och symboliserar tillhörighet, rang och status. Ju större, mer intrikat brodyr och påkostad krage, desto större värdighet på bäraren. Ett gott exempel är Karl XIV Johans franska marskalksuniform broderad med guldtråd som täcker större delen av kragen.
 
 Under 1820 talet började de svenska kungliga ämbetsverken använda broderade kragar med reglementsenlig brodyr av svart sammetskargar med svart silketbrodyr.
 Den akademiska kragen började växa fram i Uppsala i mitten av 1800-talet med fem olika grader: student, magister, doktor, docent och professor. Detta finns omnämnt 1845 av August Blanche i den korta romanen Järnbäraren:
@@ -148,21 +197,48 @@ De tre första graderna omhuldas lyran av lagerblad där studentkragen har ett s
 
 Andra svenska universitet har andra symboler och traditioner för de akademiska kragarna. Det har därmed inte förekommit någon nationell harmonisering av denna kulturskatt. Hantverket för att skapa en akademikrage är mycket krävande och komplicerat. Det tar därför lång tid och gör kragen tämligen dyr. Kombinationen leder till att få kragar produceras årligen och hantverket blir utrotningshotat. I skrivande stund finns endast två brodöser i Sverige som bär arvet vidare (Lund och Uppsala). Det kan bara hoppas att sällskapet KFV kan bidra till bevarandet av traditionen och pryda sin frack med en broderad krage - om än det kostar en slant.
 
-Källa: Lundin, Tom (2019) Akademiska frackkragar. Universitets- och studenthistoriska sällskapet. Uppsala*
+Källa: Lundin, Tom (2019) Akademiska frackkragar. Universitets- och studenthistoriska sällskapet. Uppsala
 
-#### Näsduk eller ej?
+## Lager 3 - Detaljerna och rocken ovan
 
-Var och när har vi näsduk
+### Näsduk eller ej?
 
-### Pluntan
-
-Några ord om pluntan
+Betänk att medaljer skall enligt bärandeordning egentligen fästas uppåt och ovanför bröstfickan, med medaljerna hängandes framför fickan och dess öppning. Vi låter denna sektion tills vidare vara öppen för diskussion.
 
 ### Nålarna
 
 Orientering med nålar utifrån frackslaget.
 
 Hur många i ett kluster, vilka nålar etc.
+
+### Medaljerna
+
+De olika skolorna förtäljer:
+Less is more - ta endast de medaljer som hör till det nuvarande sällskapet eller föreningen, således; bara KFV.
+Lagom is more - ta som ovan men flexa in några av dina finaste medaljer från andra sammanhang. Värnplikt, strapatsmarsch, förtjänstmedalj från nationerna, etc. Det finns de som även tar på sig medaljer från andra sällskap. Det är en smaksak.
+More is more - ta allt det du har. Du har många medaljer, du vill visa att du har många medaljer. Det har du fått för att du har gjort någonting bra. Men vet också att du troligtvis går på fel sida om den hårfina gränsen mellan coolt med medaljer vs julgran.
+
+[Bild på Rex]
+
+### Klockor och hur vi håller tiden
+
+Undvik armbandsur i samband med frack. När det är fest eller högtid ska man vara “utan tid” – men ett fickur i frackens väst går bra (single eller double-breasted väst).
+
+Här ett stycke på ämnet skrivet av Br Martin Strålenhielm:
+
+Klockkedjan och rovan.
+
+När man talar om bärande av fickur eller rova bör fokus läggas på kedjan. En herres klockkedja är nämligen ett av få smycken vi herrar får bestämma över fritt i hur det ska se ut - så länge det följer vissa regler.
+
+Kedjan ska vara i samma material som fickuret och inte sitta för spänt eller lössläppt, fästas i ett knapphål (eller runt en knapp) strax över västfickan och förvaras i vänster ficka för att alltid ha huvudhanden fri. En dubbel kedja kan användas, speciellt om fickuret kräver en urnyckel, och kan då gå över till höger västficka (i studentlivets Uppsala kan t.ex. en kapsylöppnare eller fickkniv dölja sig i andra ändan). Utsmyckning av kedjan kan ske med kors, signeter, ordensdetaljer eller annat som tjänar till västens prydande.
+
+Bärandet av fickur i höger västficka kommer från ban- och tågpersonalen. Där behövde man kunna hålla i sig med vänster hand och behövde således ha fickuret i höger ficka.
+
+Historiskt (1930-talet) skedde ett skifte i bärandet av fickur till frack. Innan dess fästes aldrig fickuret i frackvästen, utan när högtidsdräkt var påkallat fästes fickuret i vänster hängselstropp och rovan förvarades således i vänster byxficka. Innan kedjornas tid bars uret i en utsmyckad stropp i en ändamålsenlig separat byxficka.
+
+Fickuret eller rovan bör vara av silver, platina eller guld och bör historiskt vara utan lock. Lock eller förvaringsaskar användes primärt för att skydda rovan under arbetet (detta kom att förändras i och med att lockens utsmyckning ökade).
+
+Urens storlek har varierat utefter mode. Rovorna bars alltid i byxfickan då storleken gjorde att de inte fick plats i andra fickor. När de blev mindre och smalare kunde de flyttas upp till västens fickor och storlekarna varierade mer. I dag ser man många äldre ur som kallas för mormorsur (eller damur) även om de var tillverkade för män. De “äkta” damuren hängde ofta i en kedja runt halsen och hade således uppdragskronan mitt för 6:an på urtavlan.
 
 ### Hatten och studentmössan
 
@@ -186,15 +262,16 @@ Doktorshatt bäres ej till militär uniform.
 
 Källa: Per Ström och Tom Lundin*
 
-### Band på skjortbröstet
+### Rock eller mantel
 
-### Medaljerna
+Till fracken, om vädret påkallar det, bör något bäras ovanpå. En snygg rock som täcker hela vägen ner till frackjackans skörtlar är det vanligaste alternativet.
 
-De olika skolorna förtäljer
-Less is more
-Lagom is more
-More is more
+Det finns även de som anskaffat sig en mantel att bära istället för rock. Lite stekigare, lite mera flex. Valfritt att införskaffa. Tänk på att mörkblått upplevs som mer svart än svart om kvällstid och natt.
 
-### Klockor och hur vi håller tiden
+## Avslutningsord
 
-Undvik armbandsur i samband med frack. När det är fest eller högtid ska man vara “utan tid” – men ett fickur i frackens väst går bra (single eller double-breasted väst).
+Utifrån de regler som vi lagt fram i denna guide kommer vi framgent kunna vara mer korrekt klädda enligt de förväntningar vi har på våra högtidssammanhang i KFV.
+
+Det skall dock minnas att även om vi broderligt kan påminna eller justera en annan broders klädsel och detaljer till det rätta, så bör vi även hålla "God Ton" genom att välja dessa tillfällen varsamt utifrån följande riktlinjer:
+
+Om det är enkelt att justera (en sned nål, ett felvänt band, en konstig fluga) så är det ok. Om det är svårt att åtgärda felet på plats (valt fel skor för tillfället) så är det bättre att påminna om detta vid ett senare tillfälle. Annars kan en olustig känsla av att vara felklädd lägga sorti på resten av kvällen för berörd broder. Låt broder därför ha trevligt och roligt för det aktuella tillfället och lämna den (nästan obligatosika) broderligt och hjärtlösa roasten till dagen efter.
