@@ -165,9 +165,12 @@ Västen skall, som skrivet tidigare gällande byxornas höjd, vara så pass att 
 Utöver det skall västen gå så långt ner att hamnar i två kategorier beroende på åsikt och preferens.
 
 Alt 1. Västen går 1-1,5 cm nedanför frackjackans nedre del.
+
+![Väst nedanför nedre kant](bilder/vit_väst_nedanför_frackjackan.jpeg "Väst nedanför nedre kant")
+
 Alt 2. Västen slutar i exakt samma höjd eller 0,5-1 cm innan frackjackans nedre del. Detta ger en "svart sammanhängande linje från axel till ankel".
 
-[Bild 1, 2 väst]
+![Väst innan nedre delen](bilder/vit_väst_innan_frackkanten.jpeg "Väst innan nedre delen slut")
 
 Det finns i dagsläget anhängare av båda alternativen i KFV, därav får regeln vara tvåsvarig tills vidare. Dock är rekommendationen att välja alt 2 i valet och kvalet för både svart och vit väst.
 
