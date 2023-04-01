@@ -120,19 +120,19 @@ Som tidigare nämnt är det vingkrage som gäller. Skjortmodeller finns med lös
 ![Collarless wing shirt](bilder/collarless-wing-shirt1.webp "Collarless wing shirt")
 
 * Den lösa kragen bör vara en halv storlek större än skjortans kragmått. Bär du skjortkrage 16 tum bör alltså den löstagbara kragen vara 16½ tum.
-* När man nyttjar lös krage så används två lösa knappar, nästan likt en minimanschett, se bild. En i nacken, en framtill under adamsäpplet. Betänk att den främre av dessa knappar måste ta längd för att kunna ha fyra lager av kragtyget (om lott!) när den skall fästas. Om kragtyget är 2 mm tjockt är det alltså 4x2 = 8 mm längd på frontknappens stjälk för att med lämplig enkelhet kunna knäppa kragen. [Bild på krag1] [Bild på krag2]
+* När man nyttjar lös krage så används två lösa knappar, nästan likt en minimanschett, se bild. En i nacken, en framtill under adamsäpplet. Betänk att den främre av dessa knappar måste ta längd för att kunna ha fyra lager av kragtyget (om lott!) när den skall fästas. Om kragtyget är 2 mm tjockt är det alltså 4x2 = 8 mm längd på frontknappens stjälk för att med lämplig enkelhet kunna knäppa kragen.
 
 Exempel online: <https://www.newandlingwood.com/mens-accessories/stiff-collars/regular-wing-stiff-collar>
 
 ### Flugan
 
-[Bild på fluga]
+![White tie](bilder/maxresdefault.jpeg "White tie")
 
 I KFV uppmuntras det till att nyttja egenknuten fluga, eller som det kallades förr; vit rosett. Detta för att det är mer värdigt och karaktärsvisande än de färdigknutna flugorna. Omvänt; om det fanns färdigknytna slipsar, skulle vi i KFV uppmuntra egenknuten eller färdigknutna sådana?
 
 Hur man knyter sin egen fluga finns det flertalet videos på Youtube som visar men den enkla realiteten och insikten bör göra så att envar broder hädanefter kan bemästra den med förbundna ögon;
 
-"Att knyta sin fluga är samma sak som en skoknut... fast med breda band."
+"*Att knyta sin fluga är samma sak som en skoknut... fast med breda band.*"
 
 ### Byxorna
 
