@@ -1,6 +1,8 @@
-# KFV Herrkläder
+# KFV Herrkläder - Frack
 
-Denna klädguide riktar sig till KFV bröder, speciellt yngre bröder som inte hunnit läsa flertalet böcker eller texter om hur en gentleman bör klä sig, röra och föra sig. Den får även till viss del utgöra en påminnelse och checklista för de äldre bröder som redan vet allt. Läs dessa inledningsord, läs sedan avslutningsorden, därefter varje sektion i den mån du som broder behöver fräscha på din kunskap.
+Bäste Broder i Sällskapet Karl Filip av Vasa,
+
+Denna klädguide riktar sig till dig Broder, gammal som ung, men kanske speciellt de yngre bröder som inte hunnit läsa flertalet böcker eller texter om hur en gentleman bör klä sig. Hur man rör sig och för sig. Denna klädguide om klädkod frack alt högtidsdräkt (andra klädkoder kommer senare) i **specifikt** KFVs sammanhang är framtagen för att ha en baslinje för vad som gäller. Läs därför dessa inledningsord, läs sedan avslutningsorden, och därefter varje sektion i den mån du som broder behöver fräscha på din kunskap.
 
 Men, först några ord om ***GROOMING STANDARD***.
 
@@ -15,9 +17,11 @@ Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp 
 * Tandvård - Likt kroppsdoft är mun- och tandvård något du förväntas hålla koll på. Dålig andedräkt och fläckiga tänder hör inte hemma i KFV. Vårda din gom och tandkött!
 * Hudvård - Ta hand om ev utslag och sår.
 
+**Kort sagt; hel och ren**.
+
 ## Lager 1 - Närmast kroppen
 
-De kläder som är dig närmast kroppen är delvis basen i den perfekta fracken. Underkläder, strumpor, undertröja. En kommentar gällande naken eller exponerad hud; för män är det eftersträvansvärt att naken hud bara förekommer ovan kraglinjen samt nedan manschettkanten. Övriga huddelar skall vara täckta.
+De kläder som är dig närmast kroppen är delvis basen i den perfekta högtidsdräkten. Underkläder, strumpor, undertröja. En kommentar gällande naken eller exponerad hud; för män är det eftersträvansvärt att naken hud bara förekommer ovan kraglinjen samt nedan manschettkanten. Övriga huddelar skall vara täckta.
 
 ### Underkläder och kalsonger
 
@@ -25,11 +29,13 @@ Kommentarer överflödiga då du förväntas veta hur man bär underkläder. NB:
 
 ### Strumpor och dess längd
 
-Strumpor däremot, här finns det förtydliganden att göra på vad som är RÄTT.
+Strumpor däremot, här finns det förtydliganden att göra på vad som är rätt modell.
 
-Till fracken skall knästrumpor bäras. Det är den rätta längden för att undvika "The White Stripe". Här är det värt att göra ett inköp på 1x par svarta knästrumpor att bära varje gång du bör frack, smoking eller kostym där det absolut kommer vara en blemma på din outfit att vit-stripan visar sig. När budget och känslan faller på kan man även utöka till andra färger, likt mörkt marinblå eller annat. Men till fracken är det svart eller i nödfall mörkblå strumpor som gäller.
+Till fracken skall knästrumpor bäras. Det är den rätta längden för att undvika "The White Stripe". Här är det värt att göra ett inköp på 1x (eller flera) par svarta knästrumpor att bära varje gång du bär frack, smoking eller kostym där det absolut kommer vara en blemma på din outfit att vit-strippan visar sig. När budget och känslan faller på kan man även utöka till andra färger, likt mörkt marinblå, mörkgrå eller annat. Men till fracken är det svart eller i nödfall mörkblå strumpor som gäller.
 
-De tre längder som visas på bilden nedan illustrerar nedan vaden, halva vaden och ovan vaden (knästrumpa). Knästrumpor är de som garanterat sitter kvar tillräckligt högt uppe efter att du börjat röra dig (gå, stå och sitta om vartannat), medan halva vaden med lite tur kan sitta kvar (eller med manliga varianten av strumpebandshållare). Den modell nedan vaden kommer garanterat ge uophov till vita stripan när du sitter ned, särskilt vid bekväma situationer. Guiden återkommer till strumpor igen för särskilda varianter vid klädsel smoking och senare kavaj.
+Exempel: [Myrqvist svarta knästrumpor](https://myrqvist.com/products/gustav-black)
+
+De tre längder som visas på bilderna nedan illustrerar nedan vaden, halva vaden och ovan vaden (knästrumpa). Knästrumpor är de som garanterat sitter kvar tillräckligt högt uppe efter att du börjat röra dig (gå, stå och sitta om vartannat), medan halva vaden med lite tur kan sitta kvar (eller med manliga varianten av strumpebandshållare). Den modell nedan vaden kommer garanterat ge upphov till vit-strippan när du sitter ned, särskilt vid bekväma situationer. Kommande avsnitt i klädguiden utökas till strumpor för särskilda varianter vid klädsel smoking och senare kavaj.
 
 [Se bild på olika längdmodeller]
 
@@ -46,11 +52,16 @@ Modeller: välj en mycket tunn t-shirt eller ärmlös undertröja. Tänk på att
 Fördel: håller dig varm vid kallare väderlekar.
 Nackdel: kan göra dig svettig vid varmare väderlekar och för många lager på lager.
 
+Exempel: [Uniqlo tunn t-shirt](https://www.uniqlo.com/uk/en/product/airism-v-neck-short-sleeved-t-shirt-454311.html)
+Exempel: [Uniqlo tunn ärmlös undertröja](https://www.uniqlo.com/uk/en/product/airism-cotton-vest-top-457484.html?dwvar_457484_color=COL00)
+
 ## Lager 2 - Det som faktiskt klär dig till frack
+
+Skor, byxor, skjorta, väst, frackjackan
 
 ### Skodon till frack
 
-Det finns skor till frack, och så finns det **rätt skor** till frack. Det finns även skor som en mindre beläst man kan välja att ha till frack, men som absolut skall undvikas av en broder i KFV när frack bäres.
+Det finns skor till frack, och så finns det **rätt skor** till frack. Det finns även skor som en mindre beläst person kan välja att ha till frack, men som absolut skall undvikas av en broder i KFV när frack bäres.
 
 Här några ord skrivna av KKFV Br Marcus Molander:
 
@@ -72,7 +83,7 @@ Vid de tillfällen en snabbare men inte lika genomgående vårdprocess önskas k
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Hsah_FTXDOE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 Lackskor är en sko som har fått ytan behandlad med plast eller någon form av olja som gör att den har en permanent glans. Lackskor är ett utpräglat festplagg som *inte ska bäras* till begravning, examenshögtider eller andra mer formella sammankomster med frack, dvs KFVs högtidsmiddagar.
-En del ordenssällskap förbjuder tex användandet av lackskor vid sina sammankomster.
+En del ordenssällskap förbjuder tex användandet av lackskor vid sina sammankomster, men vilket KFV inte har förbud mot.
 Förr bar ofta artister och medlemmar i bandet lackskor (ex.vis Fred Astaire och Matt Monroe) samt sk swingpjattar. Vill man inte sälla sig till den skaran så är en välputsad sko av vanligt läder att föredra.
 
 *Undantaget* är vid de tillfällen då KFV har utpräglad feststämning; t.ex. vartannat år med KFVs bal där kvinnliga gäster förekommer och den årligen återkommande KFV Stockholms-fänikans Lågtidsmiddag (klädsel: smoking).
