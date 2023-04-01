@@ -8,7 +8,9 @@ Men, först några ord om ***GROOMING STANDARD***.
 
 ## Lager 0 - Din lekamen
 
-Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp och yttre som förväntas alltjämt efterlevas i våra sammanhang. Dessa kategorier är:
+Följande sektion har inte varit ett problem eller på förekommen anledning i KFV. En gång till; det har inte varit ett tidigare problem eller på förekommen anledning. Men vi tar med det ändå för att det i framtiden inte skall missas något av dessa självklara steg innan en högtidssammankomst.
+
+Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp och yttre (grooming standard) som förväntas alltjämt efterlevas i våra sammanhang. Dessa kategorier är:
 
 * Kroppshygienen - Den dagliga vården av kropp i form av dusch och tvål.
 * Kroppsdoft - Gör din grej och dina Eau de Cologne, du förväntas vara fri från icke angenämna odörer när du ansluter.
