@@ -142,51 +142,59 @@ Hur man knyter sin egen fluga finns det flertalet videos på Youtube som visar m
 
 ### Byxorna
 
-Modellen är frackbyxor, standardmodell med revär längs benet. När du bär byxorna är det viktiga att dessa inte hasar ner på höfterna likt hur t.ex. jeans kan sitta på kroppen. Byxorna skall sitta så pass högt upp att en "white stripe" från skjortan ej uppstår mellan byxlinningen och västens nedre kan.
+Byxmodellen som gäller är frackbyxor, standardmodell med revär längs benet. När du bär byxorna är det viktig att dessa inte hasar ner på höfterna likt hur så kallade jeans kan sitta på kroppen. Byxorna skall sitta så högt upp att en "white stripe" från skjortan ej uppstår mellan byxlinningen och västens nedre kan.
 
-Notera exempel på Br Almgren, innan han insåg sina egna klädsynder, och hade sina byxor för kort ner på höfterna. Det som räddar intrycket är ju att det är vitt på vitt, men det grämer Br Almgren att en sådan Hollywood-klass på bild inte uppnår perfektion när man vet vad man ska titta efter.
+Notera exempel på Br Almgren, innan han insåg sina egna klädsynder, och hade sina byxor för långt ner på höfterna. Det som räddar intrycket är ju att det är vitt på vitt, men det grämer Br Almgren att en sådan Hollywood-klass på bild inte uppnår perfektion när man vet vad man skall titta efter.
 
-[Bild-Almgren-Ida-Bröllop.]
+![Makarna Almgren på Br Niklas Berntorps bröllop](bilder/IMG_20171025_184820_900.jpg "Makarna Almgren på Br Niklas Berntorps bröllop")
 
 #### Hängslen eller förhöjning?
 
 Hur håller man byxorna uppe på rätt sätt?
 
-* Hängslen är den klassiska varianten. Förutom att hålla byxorna uppe fyller hängslen även en sekundär funktion; ett bättre ställe att fästa ordens- och nationsband än frackskjortans tyg!
-* Förhöjning av byxans midja. Vilken grej! Detta kräver oftast ingrepp från sömmerska men resultatet är en stark byxa som ger ett säkert intryck för bäraren och visuellt felfritt vid frackvästens nedre kant. Riktlinje: förhöjningen bör gå 3-4 fingrar högre än naveln.
+* Hängslen är den klassiska varianten. Förutom att hålla byxorna uppe fyller hängslen även en sekundär funktion; att vara ett bättre ställe att fästa ordens- och nationsband i än frackskjortans tyg!
+* Förhöjning av byxans midja. Vilken grej! Detta kräver oftast ingrepp från sömmerska men resultatet är en stark byxa som ger ett säkert intryck för bäraren och visuellt felfrihet vid frackvästens nedre kant. Riktlinje: förhöjningen bör gå 3-4 fingrar högre än naveln.
 
 ### Västen
 
 KFVs högtidsmiddagar innebär herrsällskap, således svart väst.
 KFVs bal med gäster, kvinnliga såväl som manliga sådana, innebär vit väst.
 
-Västen skall, som skrivet tidigare gällande byxornas höjd, vara så pass att de täcker byxlinningens kant.
+Västen skall, som redan nämnts gällande byxornas höjd, gå så pass långt ner att den täcker byxlinningens kant.
 
-Utöver det skall västen gå så långt ner att hamnar i två kategorier beroende på åsikt och preferens.
+Därutöver skall västen gå så långt ner att den hamnar i två kategorier beroende på åsikt och preferens:
 
 Alt 1. Västen går 1-1,5 cm nedanför frackjackans nedre del.
 
 ![Väst nedanför nedre kant](bilder/vit_väst_nedanför_frackjackan.jpeg "Väst nedanför nedre kant")
 
-Alt 2. Västen slutar i exakt samma höjd eller 0,5-1 cm innan frackjackans nedre del. Detta ger en "svart sammanhängande linje från axel till ankel".
+Alt 2. Västen slutar i exakt samma höjd eller 0,5-1 cm ovanför frackjackans nedre del. Detta ger "en svart sammanhängande linje från axel till ankel".
 
 ![Väst innan nedre delen](bilder/vit_väst_innan_frackkanten.jpeg "Väst innan nedre delen slut")
 
-Det finns i dagsläget anhängare av båda alternativen i KFV, därav får regeln vara tvåsvarig tills vidare. Dock är rekommendationen att välja alt 2 i valet och kvalet för både svart och vit väst.
+Det finns i dagsläget anhängare av båda alternativen i KFV, varför regeln tills vidare får besvaras så. Dock är rekommendationen att välja alt 2 som fungerar för både svart och vit väst.
 
-Gällande framsidan så finns två kända skärningar; V och U. Notera att vid KFVs högtidstillfällen är båda modellerna uppmuntrade och acceptabla att bära till fracken.
+Gällande framsidan så finns två kända skärningar; V och U. Notera att vid KFVs högtidstillfällen är båda modellerna uppmuntrade och acceptabla att bära.
 
-V-skärning. Den vanligaste standardmodellen på frackväst. Kan ha kortare eller längre snibbar nedtill. [Se bild]
+V-skärning. Den vanligaste standardmodellen på frackväst. Kan ha kortare eller längre snibbar nedtill.
 
-U-skärning. Vanligt förekommande bland Försvarsmakten och Polismyndigheten då denna modell är satt till deras klädkod för högtidsdräkt. [Se bild]
+![Vit väst v-skärning](bilder/white-tie-evening-tails-tailcoat-hire.webp "Vit väst v-skärning")
 
-Gällande baksidan så finns även där två modeller; öppen rygg och sluten rygg.
+U-skärning. Vanligt förekommande bland Försvarsmakten och Polismyndigheten då denna modell ingår i deras klädkod för högtidsdräkt.
 
-Öppen rygg: vanligt förekommande i "ditt första frack-kit". Är vanligtvis mera budgetvänlig och är delvis en fråga om lättare att samma modell skall passa många kroppstyper. Modellen har ett justerbart band om nacken, höften och ryggen. Att den inte gör bäraren lika varm och ev svettig är en annan egenskap. Dock är det svårt att få modellen att sitta snyggt vid axlarna, ty tyget slutar nära nyckelbenen och kan ge ett konstigt intryck. [Se bild Almgren riddare]
+![Vit väst U-skärning](bilder/440px-Beauchamp7.jpeg "Vit väst U-skärning")
 
-Sluten rygg: vanligare när man genom livet uppgraderar sin frack förbi budgetstadiet. Är oftast storleksanpassad (likt byx- och kavajstorlekar), samt något mera premium i tyget. Ger snyggare helhetsintryck och erbjuder en möjlighet till vissa modifikationer efter bärarens tycke och smak; nya knappar alt nytt ryggtyg.
+Nedan ett trevligt exempel på bröder bärandes respektive modell.
 
-### Halskors - specifikt hur det skall sitta runt halsen
+![V- och U-skärning på väst sida vid sida](bilder/v_och_u_väst.jpg "V- och U-skärning på väst sida vid sida")
+
+Gällande baksidan så finns även där två modeller: öppen rygg och sluten rygg.
+
+Öppen rygg: vanligt förekommande i "ditt första frack-kit". Är vanligtvis mera budgetvänlig och är delvis en fråga om att samma modell lättare skall passa många kroppstyper. Modellen har ett justerbart band om nacken, höften och ryggen. Att den inte gör bäraren lika varm och ev svettig är en annan egenskap. Dock är det svårt att få modellen att sitta snyggt vid axlarna, ty tyget slutar nära nyckelbenen och kan ge ett konstigt intryck. [Se bild Almgren riddare]
+
+Sluten rygg: vanligare när man genom livet uppgraderar sin frack bortom budgetstadiet. Är oftast storleksanpassad (likt byx- och kavajstorlekar), samt något mera premium i tyget. Ger snyggare helhetsintryck och erbjuder en möjlighet till vissa modifikationer efter bärarens tycke och smak; nya knappar eller nytt ryggtyg.
+
+### Halskors - särskilt hur det skall sitta runt halsen
 
 Ledamotsbandet och Riddartecknet anges att bäras enligt Sällskapets lilla Blå bok. Minnesregel för ledamöter: "Moln över Havet" - det vita ovan det blå i ledamotsbandet samt max tre band över bröstet. Det band du anser viktigast överst och därefter i fallande ordning.
 
