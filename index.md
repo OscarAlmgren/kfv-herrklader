@@ -49,9 +49,9 @@ Nedan-vaden som kommer bryta den svarta siluetten så fort broder inte står upp
 
 ![Nedan vaden svarta strumpor](bilder/white_Stripe_byxor.jpeg "Nedan vaden svarta strumpor")
 
-Ett bildexempel på Br D som vid ett KFV-sammanhang (lågtidsmiddag med klädkod smoking) råkade välja en något för kort strumpa. Se bilderna sida vid sida och se hur helhetsintrycket är så mycket bättre när strumpan täcker som den ska. Ett särskilt, riktat tack till Br Dumanski som gett ssitt godkännande till att använda denna bild i utbildningssyfte då han enligt utsago *"har verkligen fått äta upp det strumpvalet :P"*.
+Ett bildexempel på Br Dumanski som vid ett KFV-sammanhang (lågtidsmiddag med klädkod smoking) råkade välja en något för kort strumpa. Se bilderna sida vid sida och se hur helhetsintrycket är så mycket bättre när strumpan täcker som den ska. Ett *särskilt, riktat tack* till Br Dumanski som gett ssitt godkännande till att använda denna bild i utbildningssyfte då han enligt utsago *"har verkligen fått äta upp det strumpvalet :P"*.
 
-[ Sida vid sida Dumpanski ]
+![Dumanski nästan perfekt vs perfekt]("Dumanski nästan perfekt vs perfekt")
 
 ### Undertröja
 
