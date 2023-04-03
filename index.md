@@ -365,7 +365,8 @@ Det skall dock ihågkommas att även om vi broderligt kan påminna eller justera
 
 Om det är enkelt att justera (en sned nål, ett felvänt band, en vriden fluga) så är det i sin ordning. Om det är svårt att åtgärda felet på plats (felvalda skor för tillfället) så är det bättre att påminna om detta vid ett senare tillfälle. Annars kan en olustig känsla av att vara felklädd lägga sordin på resten av kvällen för berörd broder. Låt brodern därför ha trevligt och roligt för tillfället och lämna den (nästan obligatoriska) broderliga och hjärtlösa roasten till dagen efter.
 
-Denna version skriven i mars/april 2023. Huvudansvarig KKFV Oscar Almgren, med sektionsförfattare KKFV Marcus Molander, KKFV Marcus Bandstein, RKFV Martin Strålenhielm. Korrekturläsning KStKKFV Eric Bylander.
+Denna version skriven i mars/april 2023. Huvudansvarig KKFV Oscar Almgren, med sektionsförfattare KKFV Marcus Molander, KKFV Marcus Bandstein, KKFV PJ Lind, RKFV Martin Strålenhielm. Korrekturläsning KStKKFV Eric Bylander.
 
 [1] - [https://kungligmajestatsorden.se/om-kmo/anvisning-barande](https://kungligmajestatsorden.se/om-kmo/anvisning-barande)
+
 [2] - Herr Broder Doktor, HBD.
