@@ -281,6 +281,32 @@ De olika förhållningssätten till bärande av medaljer innebär följande:
 
 Några ord om montering av medaljer från KKFV Peter Johan "PJ" Lind.
 
+#### Bärande av utmärkelser
+
+Till högtidsdräkt (frack, kaftan, folkdräkt och uniform) kan utmärkelser bäras. Med utmärkelser menas medaljer, tecken, etc. som tilldelats dig, broder, personligen såsom belöning för insats (i regel medaljer) eller såsom rangmarkör (ledamotsband, riddartecken, etc.).
+
+#### I band på bröstet
+
+I Sverige bäres medaljer i en (1) rad. Medaljer att bäras på bröstet bör om de är fler än 2 monteras ihop. Är de fler än 3 till antalet monteras de omlott. För officiella utmärkelser och tecken är detta att betrakta som obligatoriskt, för sällskapsinterna dito är det inte lika strikt (även om det givetvis ser mycket prydligare ut). För den broder som känner sig bekväm med nål och tråd (eller inte är i ekonomisk sits att be ett proffs göra jobbet) finns ett antal instruktionsvideor för montage på YouTube.
+
+Påpekas skall att officiella medaljer och tecken inte bör monteras ihop med icke officiella.
+
+Medaljer i original fästes strax ovanför bröstfickan, näsduk bäres således inte.
+
+Miniatyrmedaljer fästes på frackrockens vänstra slag (från bäraren sett) och näsduk bäres i de fall bandbredden inte går över slagets kant.
+
+För den extravagant lagde brodern kan miniatyrer bäras (utan band) i kedja över frackrockens vänstra slag (från bäraren sett). För att denna montering ska vara aktuell bör utmärkelserna vara minst 3 till antalet.
+
+#### Bärande av nålar
+
+Traditionellt bäres icke nålar i frackrockens slag. I sällskapets hägn förekommer dock bärandet av såväl våra egna nålar (sällskapets nål, kanslersnål, Strängnäsnål, etc.) som andra studentikosa dito (t.ex. nations- och kuratorsnålar). Broder bör dock ha i åtanke:
+
+att nålar i en del fall (s.k. ordensknapp eller bouton) ersätter ordenstecken vilket indikerar att de inte ska bäras samtidigt
+
+att miniatyrmedaljer (i band som i kedja) och nålar konkurrerar om samma utrymme på slaget och gifter sig därför inte
+
+att i det fall nål prompt ska bäras på slaget begränsa antalet, helst till 1 och i alla händelser inte fler än 3.
+
 ### Klockor och hur vi håller tiden
 
 Undvik armbandsur i samband med frack. När det är fest eller högtid ska man vara “utan tid” – men ett fickur i frackens väst går bra.
