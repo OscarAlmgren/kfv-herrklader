@@ -2,22 +2,13 @@
 
 Bäste Broder i Sällskapet Karl Filip av Vasa,
 
-Denna klädguide riktar sig till dig Broder, gammal som ung, men särskilt de yngre bröder som inte hunnit läsa ett flertal böcker eller texter om hur en gentleman bör klä sig, röra sig och föra sig. Denna klädguide om klädkoden frack alt högtidsdräkt (andra klädkoder kommer senare) i **specifikt** KFVs sammanhang är framtagen för att ha en baslinje för vad som gäller. Läs därför dessa inledningsord, läs sedan avslutningsorden, och därefter varje sektion i den mån du som broder behöver fräscha upp din kunskap.
+Denna klädguide riktar sig till dig Broder, gammal som ung, men särskilt de yngre bröder som inte hunnit läsa ett flertal böcker eller texter om hur en gentleman bör klä sig, röra sig och föra sig. Denna klädguide om klädkoden frack alt högtidsdräkt (andra klädkoder kommer senare) i **specifikt** KFVs sammanhang är framtagen för att ha en baslinje för vad som gäller för kombinationen *FRACK* + *HERRSÄLLSKAP*.
+
+Läs därför dessa inledningsord, läs sedan avslutningsorden, och därefter varje sektion i den mån du som broder behöver fräscha upp din kunskap.
 
 Men, först några ord om ***GROOMING STANDARD***.
 
 ## Lager 0 - Din lekamen
-
-Följande sektion har inte varit ett problem eller på förekommen anledning i KFV. En gång till; det har inte varit ett tidigare problem eller på förekommen anledning. Men vi tar med det ändå för att det i framtiden inte skall missas något av dessa självklara steg innan en högtidssammankomst.
-
-Det kan nämnas att det finns sex(6) kategorier i den personliga vård av kropp och yttre (grooming standard) som förväntas alltjämt efterlevas i våra sammanhang. Dessa kategorier är:
-
-* Kroppshygienen - Den dagliga kroppsvården i form av dusch och tvål.
-* Kroppsdoft - Eau de Cologne eller hur du annars förfar: var fri odör när du ansluter.
-* Hårvård - I KFV förväntas du vara vårdad vid högtidstillfällen. Det betyder att du har en riktig människofrisyr, ev hårprodukter, och att du har trimmat skägget alt rakat dig ordentligt. Inga hobos eller luffare!
-* Klädsel - Täcks av denna klädguide.
-* Tandvård - Likt kroppsdoft är mun- och tandvård något du förväntas hålla koll på. Dålig andedräkt och fläckiga tänder hör inte hemma i KFV. Vårda din gom och ditt tandkött!
-* Hudvård - Ta hand om ev utslag och sår.
 
 Kort sagt: **hel** och **ren**.
 
@@ -51,7 +42,7 @@ Nedan-vaden som kommer bryta den svarta siluetten så fort broder inte står upp
 
 Ett bildexempel på Br Dumanski som vid ett KFV-sammanhang (lågtidsmiddag med klädkod smoking) råkade välja en något för kort strumpa. Se bilderna sida vid sida och se hur helhetsintrycket är så mycket bättre när strumpan täcker som den ska. Ett *särskilt, riktat tack* till Br Dumanski som gett ssitt godkännande till att använda denna bild i utbildningssyfte då han enligt utsago *"har verkligen fått äta upp det strumpvalet :P"*.
 
-![Dumanski nästan perfekt vs perfekt]("Dumanski nästan perfekt vs perfekt")
+(Lägg bild här)
 
 ### Undertröja
 
@@ -72,9 +63,9 @@ Skor, byxor, skjorta, väst, frackjacka
 
 ### Skodon till frack
 
-Det finns skor till frack, och så finns det **rätt skor** till frack. Det finns även skor som en mindre påläst person kan välja att ha till frack, men som absolut skall undvikas av en broder i KFV när frack bäres.
+Det finns skor till frack, och så finns det **rätt skor** till frack.
 
-Här några ord skrivna av *KKFV Br Marcus Molander*:
+Här några ord skrivna av *KKFV Br Marcus Molander*, samt i blåtext kompletterad av KKFV Oscar Almgrern:
 
 Grunden för skodon i alla formella sammanhang oavsett klädkod är
 
@@ -100,25 +91,15 @@ Vid de tillfällen en snabbare men inte lika genomgående vårdprocess önskas e
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Hsah_FTXDOE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-Lackskor är skor som har fått ytan behandlad med plast eller någon form av olja som gör att de har en permanent glans. Lackskor är ett utpräglat festplagg som *inte skall bäras* till begravning, examenshögtider eller andra mer formella sammankomster med frack, dvs KFVs högtidsmiddagar.
+Lackskor är skor som har fått ytan behandlad med plast eller någon form av olja som gör att de har en permanent glans. Lackskor är ett utpräglat festplagg som *inte skall bäras* till begravning, examenshögtider eller andra mer formella sammankomster med frack.
+
 En del ordenssällskap förbjuder t ex användandet av lackskor vid sina sammankomster, men KFV har inte förbud utan litar på sina bröders goda omdöme.
-Förr bar ofta artister och medlemmar i bandet lackskor (exempelvis Fred Astaire och Matt Monroe) samt s k swingpjattar. Vill man inte sälla sig till den skaran så är en välputsad sko av vanligt läder att föredra.
+
 ![Svarta lackskor](bilder/Myrqvist_lackskor.webp "Svarta lackskor")
 
 *Undantaget* är vid de tillfällen då KFV har utpräglad feststämning; som vartannat år vid KFVs bal, där kvinnliga gäster förekommer, och den årligen återkommande Stockholms-fänikans Lågtidsmiddag (klädsel: smoking).
 
-*Undantaget 2* är s k bowtie-skor kombinerat med knickers. Detta är en ny variant av frackklädsel som guiden återkommer till efter grundliga efterforskningar. Denna kombination av lackpumps och knickers är en ny företelsee och bärande bland några bröder i KFV. Varken påbud eller förbud mot kombinationen finnes.
-
-![]
-
 Vid svårt väderläge (regn eller snö) bärs [galoscher, bottiner eller pampuscher](https://vintagemannen.se/2016/02/09/bli-inte-blot-om-fotterna-idag/) (det sistnämnda dock för damer). Skulle vädret vara mycket kallt så går det bra att bära rejälare kängor eller stövlar under transport som bytes mot skor vid ankomst till lokalen. Tumregeln är att om man kan bära päls som ytterplagg så kan man bära vinterstövlar.
-
-Här följer några exempel på, som mot bakgrund av ovan nämnda indelningar, alltså skall anses, till frack och KFVs herrsällskapsmässiga högtidsmiddagar, vara **ej rätt skor**. Men, allt givet allt, så är *lackskor* alltjämt *det minst felaktiga alternativet* av dessa listade. Övriga exempel på skor (brogue, resårskor, mörkbruna) är alltså direkt fel och skall **ej bäras** vid KFV högtidsmiddagar.
-![Svarta kvartsbrogue](bilder/Myrqvist_kvarts_brogue_svarta.webp "Svarta kvartsbrogue")
-![Svarta lackskor](bilder/Myrqvist_lackskor.webp "Svarta lackskor")
-![Svarta, släta, höga skor](bilder/ElfvikBlackCalf_02.webp "Svarta, släta, höga skor")
-![Salmiak-balkarna konsultdojan](bilder/salmiak_balkar.jpg "Salmiak-balkarna konsultdojan")
-![Bruna släta lågskor snörade](bilder/AppelvikenDarkBrownCalf_02.webp "Bruna släta lågskor snörade")
 
 ### Skjortan
 
@@ -235,9 +216,9 @@ Mer om bärandeordning, fästen och instruktioner finns att tillgå enligt:
 1. Sällskapets lilla Blå, som innehåller instruktioner av bärandeordning för just KFV-tecken och medajl.
 2. Officiell bärandeordning från Kungahuset, delvis författad av nämnde Ordens-Jonar. Se webbsida [Anvising bärande[1]](https://kungligmajestatsorden.se/om-kmo/anvisning-barande) och [kompletterande PDF sid 9](https://kungligmajestatsorden.se/download/18.516d7c47186a1c5d5561f6d5/1678148383250/Att_bara_ordnar_och_utmarkelsetecken_2019.pdf)
 
-### Kavajen och broderade kragar
+### Frackrocken och broderade kragar
 
-Frackjackan, kavajen, är tämligen standardiserad. Det går att köpa upp sig över tid till mer premium men skillnaderna kan vara svåra att se. Det man kan variera är kragen och dess kvalitet, och därmed några ord om broderade kragar från HBD[2] Bandstein:
+Frackrocken är tämligen standardiserad. Det går att köpa upp sig över tid till mer premium men skillnaderna kan vara svåra att se. Det man kan variera är kragen och dess kvalitet, och därmed några ord om broderade kragar från HBD[2] Bandstein:
 
 Broderade kragar har en lång historia inom det militära och symboliserar tillhörighet, rang och status. Ju större, mer intrikat brodyr och påkostad krage, desto större värdighet på bäraren. Ett gott exempel är Karl XIV Johans franska marskalksuniform broderad med guldtråd som täcker större delen av kragen.
 
